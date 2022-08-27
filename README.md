@@ -1,1 +1,1 @@
-# Lucrare-de-Licen-a
+# Lucrare-de-Licenta
